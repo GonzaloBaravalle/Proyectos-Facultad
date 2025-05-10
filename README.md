@@ -1,2 +1,0 @@
-# Proyectos-Facultad
-IT BELTRAN 
